@@ -1,1 +1,1 @@
-# spacehuhntechnologies.github.io
+[spacehuhn.tech](https://spacehuhn.tech)
